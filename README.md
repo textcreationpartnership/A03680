@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-❧A Medicinable Morall, that is, the two Bookes of Horace his Satyres, Englyshed accordyng to the preTO THE RIGHT HONOrable my Lady Ba•on, and my lady Cicell, sisters, fauourers of learnyng and vertue.
+TO THE RIGHT HONOrable my Lady Ba•on, and my lady Cicell, sisters, fauourers of learnyng and vertue.
 1. TO THE READER.
 
 1. Priscus Grammaticus de Satyra.Satyra est carmen acerbum, instrumētum mordax. &c.
